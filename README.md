@@ -1,4 +1,4 @@
-A stranger emailed me last year, asking if I was the same person who wrote a story called *Dust in the Wind*. This was completely bewildering to me, as I had written it for my 8th grade school paper back in 1989. Apparently an English teacher at that school has made her students read it every year since. 
+A stranger emailed me last year, asking if I was the same person who wrote a story called *Dust in the Wind*. This was completely bewildering to me, as I had written it for my 8th grade school paper back in 1989. Apparently an English teacher at that school has made her students read it every year since, and this man was one of those students. 
 
 He asked me if I could release it under Creative Commons, because he and some other people wanted to do some art projects based around it. I agreed, and he was kind enough to type it up for me (I lost the orignal, obviously). 
 
