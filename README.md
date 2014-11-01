@@ -16,7 +16,7 @@ Unfamiliar music flowed in the background. Very familiar faces were randomly spr
 
 "Harry? Harry Smith? How are you? Lord, I can’t believe it! You look great.
 
-"Thanks, You lodk awful, Mike. When did you start to take the Trys1lide, yesterday. Harry stared at the deep lines carved into Michael's face by the fierce talons of grief, sorrow, and worry.
+"Thanks, You look awful, Mike. When did you start to take the Trysilide, yesterday. Harry stared at the deep lines carved into Michael's face by the fierce talons of grief, sorrow, and worry.
 
 "I... I haven’t started taking it yet." 
 
@@ -44,7 +44,7 @@ Mike walked firmly off, over to the tall woman with a drink in her hand. "Boy, i
 
 "I don't understand. Why not?" His eyes flashed with anger.
 
-"Why not? Because I want to live and die. That simple. Got put us here for a certain amount of time. It's blasphemous. We were not meant to live for two hundred or three hundred years. I don't want my children to fear death. That's what it all boils down to, you know."
+"Why not? Because I want to live and die. That simple. God put us here for a certain amount of time. It's blasphemous. We were not meant to live for two hundred or three hundred years. I don't want my children to fear death. That's what it all boils down to, you know."
 
 "You!" He motioned to the crowd of people now gathered around the source of all the noise. "All of you!" The crowd's happy murmur died, and all that was to be heard was the soft music in the back and Michael's raspy breathing. "All of you are hiding. Running from your fears. I don't want to hear about that garbage about it being used for medicine and what not. Each and every one of you has become so terrified of death that you've resorted to this!" He grabbed Leslie's purse and snatched the container of green pills from it. "You are a bunch of junkies, hooked on pills. Using them to hide from your problems, from reality for God's sake!" He threw the vial down and stalked off to the men's room.
 
@@ -64,12 +64,11 @@ She spent the night, through she slept in his bed while he occupied the couch. B
 
 Mike looked at her hands, at her crazed eyes. "I'll drive." He grabbed his keys and left the eggs to burn in the frying pan.
 
-"Hurry! I'm twenty minutes overdue. Give it here!" She ripped off the cap and tore out the small, cotton wad at the top. She poured out a green pill and swallowed it. "Twenty minutes late. I've aged ome year. I---I could actually feel myself growing older. It was so strange. I---"
+"Hurry! I'm twenty minutes overdue. Give it here!" She ripped off the cap and tore out the small, cotton wad at the top. She poured out a green pill and swallowed it. "Twenty minutes late. I've aged one year. I---I could actually feel myself growing older. It was so strange. I---"
 
 "Excuse me," a short, fat woman pushed her way to the counter.
 
 He took her arm and led her back to the car. He tried to forget the trembling hands, the total insanity that corrupted her body for those twenty minutes. He could not. It made him sick. He stopped at her house, got out of the car, opened her door, and pulled her out. "You're a junkie! Just a filthy, stinking junkie! Don't call me, and don't count on me calling you." He ran to his car door and got in. Slamming the key into the ignition, he stomped on the gas pedal. Michael did not look back. He did not want to see her weeping.
-
 
 Three months later, Michael could not forget that miserable day. Leslie had left several messages on his machine, but he did not respond.
 
@@ -98,7 +97,7 @@ He knocked once, twice, three times. Finally, as he was about to force the door 
 
 Then she was gone. Michael's lap was covered in a thick layer of dust. He wailed.
 
-After brushing the some of the remains of Leslie into a small pouch, which he hung around his neck, he walked outside. It had been twenty-sevel hours since the supplies of the Trysilide had run out.
+After brushing the some of the remains of Leslie into a small pouch, which he hung around his neck, he walked outside. It had been twenty-seven hours since the supplies of the Trysilide had run out.
 
 The streets were empty. "What on earth happened?" he asked himself. "Hello?" he called. No answer. He kept on walking. Glancing around, he saw large piles of dust on the streets and sidewalks.
 
@@ -109,4 +108,3 @@ After a short while, faces were seen peering through doors and shop windows. Chi
 "The shelters ran out of pills. Gone. They're all gone."
 
 Gone? Everyone who had taken those deadly pills, all of them were dead? That was 98 percent of the United States population. All that was left were the children. Yes, the children. Pure and innocent, untainted by the twisted society. A clean slate, thought Michael Sampson as a cool summer breeze picked up a pile of dust at his feet and carried it away.
-
