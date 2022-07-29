@@ -4,13 +4,13 @@ He pushed open the heavy, wooden doors and stepped inside, a cool wave of air wa
 
 "Harry? Harry Smith? How are you? Lord, I can’t believe it! You look great.
 
-"Thanks, You look awful, Mike. When did you start to take the Trysilide, yesterday. Harry stared at the deep lines carved into Michael's face by the fierce talons of grief, sorrow, and worry.
+"Thanks, You look awful, Mike. When did you start to take the Trysilide, yesterday? Harry stared at the deep lines carved into Michael's face by the fierce talons of grief, sorrow, and worry.
 
 "I... I haven’t started taking it yet." 
 
 Trysilide was an amazing new drug, produced from the leaves of a plant discovered in 2032. The drug allowed humans to stop the aging process at whatever point that they start to take it.
 
-"What? Are you serious? Do you want to die or something? Get with it, look around. All of your friends, even teachers, everyone is young, in the prime of their lives. Look at me, Mike. I look like I’m twenty-five. I feel like it, too. Scientists have finally found the fountain of youth and you shun it? You look down on the chance to live forever? Hey man, it's your choice, but I think you're crazy. Look over there. Leslie Green, still as gorgeous as the day she graduated. See, Mike. See the benefits of Trysilide. Go. Go talk to her. She wants to see you.”
+"What? Are you serious? Do you want to die or something? Get with it, look around. All of your friends, even teachers, everyone is young, in the prime of their lives. Look at me, Mike. I look like I’m twenty-five. I feel like it, too. Scientists have finally found the fountain of youth and you shun it? You look down on the chance to live forever? Hey man, it's your choice, but I think you're crazy. Look over there. Leslie Green, still as gorgeous as the day she graduated. See, Mike? See the benefits of Trysilide? Go. Go talk to her. She wants to see you.”
 
 Mike walked firmly off, over to the tall woman with a drink in her hand. "Boy, is she in for a surprise," Harry mumbled under his breath.
 
@@ -40,9 +40,9 @@ Mike walked firmly off, over to the tall woman with a drink in her hand. "Boy, i
 
 He pulled open the door and stormed inside. So many feelings were raging through his body. He opened a stall and sat down on a toilet. A choking sob squeezed from his throat. Endless tears streamed down his face until his shirt was soaked.
 
-For no apparent reason, a commercial starring the President of the United States pushed its way through the clouded mind of Michael Sampson. It advertised the county. Liberty for sale. The price was too dire. "Hello, fellow Americans. This is your President speaking. You, as a country, should be very proud of yourselves. You have shown so many countries that democracy is the way to go. You've given them a taste of the bliss of liberty. Most of all, you should be proud of making America the first drug-free nation. It started with drug-free schools, the drug-free counties. From drug-free states, we fought our way to a drug-free county. Congratulations, citizens." Fade to black.
+For no apparent reason, a commercial starring the President of the United States pushed its way through the clouded mind of Michael Sampson. It advertised the country. Liberty for sale. The price was too dire. "Hello, fellow Americans. This is your President speaking. You, as a country, should be very proud of yourselves. You have shown so many countries that democracy is the way to go. You've given them a taste of the bliss of liberty. Most of all, you should be proud of making America the first drug-free nation. It started with drug-free schools, the drug-free counties. From drug-free states, we fought our way to a drug-free country. Congratulations, citizens." Fade to black.
 
-Michael began to laugh hysterically. A loud, humorless cackle, much like a sane man gone mad. Abruptly, the laughter stopped. His blue eyes blazed again, through they were brimming with tears.
+Michael began to laugh hysterically. A loud, humorless cackle, much like a sane man gone mad. Abruptly, the laughter stopped. His blue eyes blazed again, though they were brimming with tears.
 
 "Sure," he laughed. "Sure, we're a drug-free nation. Oh joy! Oh sweet, blissful, smut-free land. That's the biggest turd I've ever seen in this great toilet they call earth. Get rid of all the illicit, dangerous drugs that cost a bundle and cut your life short. Get rid of them quick! Hurry! Make room for new drugs that are dangerous and cheap and string out your life for centuries! Well, fetch out your Sunday teeth, Gramps. You'll need to look nice at your funeral." He walked out of the men's room exhausted. He did not say goodbye, but solemnly walked to his car. He drove home and collapsed on the bed in a dreamless sleep that lasted until 3 o'clock the next afternoon.
 
@@ -50,9 +50,9 @@ Michael began to laugh hysterically. A loud, humorless cackle, much like a sane 
 
 Two weeks later, Leslie called. They arranged to have a late dinner at his house, and well, whatever was to follow. 
 
-"The filet mignon was delicious, Mike." She delicately wiped her mouth. Michael noticed that Leslie could do anything gracefully, even wipe her mouth. They relocated to the living room sofa, the radio crooning some love song or another. His heart ached to touch her face, but he was yet unsure of her feelings for him. But those feelings were soon clear when she leaned over and gently kissed him on the lops. She drew away quickly to see if he was uncomfortable. It was evident he was not.
+"The filet mignon was delicious, Mike." She delicately wiped her mouth. Michael noticed that Leslie could do anything gracefully, even wipe her mouth. They relocated to the living room sofa, the radio crooning some love song or another. His heart ached to touch her face, but he was yet unsure of her feelings for him. But those feelings were soon clear when she leaned over and gently kissed him on the lips. She drew away quickly to see if he was uncomfortable. It was evident he was not.
 
-She spent the night, through she slept in his bed while he occupied the couch. Before breakfast, Leslie searched through her purse and fished out the plastic vial. Something was wrong. The previous pills of youth did not make the familiar irritate clatter on the walls of the cylinder. Leslie noticed this, and her eyes widened. "Oh no! Oh my God~ I'm out of it! I'm out of Trysilide! I'm missing my dosage. Do you have any I can bor---?" She broke off. "Sorry, she said flatly. "Mike, I gotta get to a drugstore right now. Can I borrow your car?"
+She spent the night, though she slept in his bed while he occupied the couch. Before breakfast, Leslie searched through her purse and fished out the plastic vial. Something was wrong. The previous pills of youth did not make the familiar irritated clatter on the walls of the cylinder. Leslie noticed this, and her eyes widened. "Oh no! Oh my God! I'm out of it! I'm out of Trysilide! I'm missing my dosage. Do you have any I can bor---?" She broke off. "Sorry, she said flatly. "Mike, I gotta get to a drugstore right now. Can I borrow your car?"
 
 Mike looked at her hands, at her crazed eyes. "I'll drive." He grabbed his keys and left the eggs to burn in the frying pan.
 
@@ -102,7 +102,7 @@ The streets were empty. "What on earth happened?" he asked himself. "Hello?" he 
 
 After a short while, faces were seen peering through doors and shop windows. Children, teenagers, and those few individuals who did not take Trysilide filed into the streets.
 
-"WHat happened?" Mike asked a boy no older than twenty-two, the age which citizens were allowed to first take the drug.
+"What happened?" Mike asked a boy no older than twenty-two, the age which citizens were allowed to first take the drug.
 
 "The shelters ran out of pills. Gone. They're all gone."
 
